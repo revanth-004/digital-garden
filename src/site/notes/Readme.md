@@ -5,6 +5,6 @@
 
 ![black.jpg|200](/img/user/img/black.jpg)
 
-I'm *Revanth kumar*, ==<mark style="background: #ADCCFFA6;">Developer</mark>== and ==<mark style="background: #D2B3FFA6;">Engineering</mark>== student.
+I'm *Revanth kumar*, <mark style="background: #ADCCFFA6;">Developer</mark> and <mark style="background: #D2B3FFA6;">Engineering</mark> student.
 
 
