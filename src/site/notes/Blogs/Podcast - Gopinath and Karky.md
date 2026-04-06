@@ -13,11 +13,11 @@ I will detest Tamil until the end of my education. I struggled with both English
 Does Linguistic Patriotism wrong ?
 In a scene from SUPER DELUXE, Fahadh makes a controversial statement comparing caste and language. It is consumed from an incorrect perspective. He argues, "we are proud to be a tamizhan, but that's not a same case in caste". But, there is difference between both language and caste on individuality. Language don't have hierarchy, whereas caste separate people with a hierarchy that come by birth.
 
+Back to the podcast, I believe that Tamil poetry is under danger these days. I feel so bad about current Tamil movie song lyrics. Hiphop Aadhi and Sai Abhiyankar have recently released songs. I sense a threat for poetry in songs. I'm glad Na. Muthukumar passed without hearing these. 
 ![Pasted image 20260407012422.png|300](/img/user/!images/Pasted%20image%2020260407012422.png)
 Chats/call அதிகமாகிருசு love letters கானோம்.
 
-I believe that Tamil poetry is under danger these days.
-I feel so bad about current Tamil movie song lyrics. Hiphop Aadhi and Sai Abhiyankar have recently released songs. I sense a threat for poetry in songs. I'm glad Na. Muthukumar passed without hearing these. The music video for Kabir Vasuki's '*Firangi Pani*' has been released. I'm irritated after listening to Kabir's interview lately. He has been hailed and his lyrics have been glorified. He claims to be an artist and uses his own gaslighting poetry to support this claim. In my opinion, artists are similar to Karky, who works with simple logic and yet producing great art. Actually they don't portray
+The music video for Kabir Vasuki's '*Firangi Pani*' has been released. I'm irritated after listening to Kabir's interview lately. He has been hailed and his lyrics have been glorified. He claims to be an artist and uses his own gaslighting poetry to support this claim. In my opinion, artists are similar to Karky, who works with simple logic and yet producing great art. Actually they don't portray
 themself as an artist.
 
 I'm not being political. One of the things about Tamil Nadu politics that I grateful for is the significance given to Tamil. I'm happy that the three-language policy is no longer in effect.
